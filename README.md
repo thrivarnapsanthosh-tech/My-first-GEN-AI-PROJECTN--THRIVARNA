@@ -1,0 +1,1 @@
+# My-first-GEN-AI-PROJECTN--THRIVARNA
